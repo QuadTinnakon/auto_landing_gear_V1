@@ -3,6 +3,7 @@ project automatic retractable landing gear
 by: tinnakon kheowree  
 tinnakon_za@hotmail.com
 tinnakonza@gmail.com
+https://sites.google.com/site/tinnakonkheowree/
 http://quad3d-tin.lnwshop.com/
 https://www.facebook.com/tinnakonza
 */
